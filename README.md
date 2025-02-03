@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Automation process
 - 💞️ I’m looking to collaborate on a game
 - 📫 How to reach me : X: @Sruikk
-- 😄 Pronouns: Fuck pronouns Im a fkn MEN
+- 😄 Pronouns: Fuck pronouns
 - ⚡ Fun fact: MAGA/MEGA
 
 <!---
